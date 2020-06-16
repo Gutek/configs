@@ -1,0 +1,1 @@
+C:\Users\jgutk\AppData\Local\Packages\Microsoft.WindowsTerminal_8wekyb3d8bbwe\LocalState
